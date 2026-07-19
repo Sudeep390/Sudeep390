@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Sudeep Phoju
+# 👋 Hi, I'm Sudeep
 
 ## 💻 Aspiring IT Support Engineer | CompTIA A+ Student
 
